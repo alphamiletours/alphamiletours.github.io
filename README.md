@@ -1,1 +1,1 @@
-# alphamiletours.github.io
+# alphamiletours.io
